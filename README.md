@@ -1,4 +1,4 @@
-### SEJA BEM-VINDE 🎈
+### Hi 🎈
 
 - ✨ Respect non-binary people  
 - 🖥 How to reach me: gajosme@outlook.com
